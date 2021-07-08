@@ -2,7 +2,6 @@
 OPCHILDSAFETY
 #GhostSec #Anonymous 
 https://t.me/GhostSecc
-https://github.com/ghostsec420/Opchildsafety2
 ==========================================================================================================================================
 
 Greetings users around the globe we are GhostSec. I Userware would like to take an opportunity to announce the resuming of an operation called #OpChildSafety. As part of the Anonymous collective it is our responsiblity not just as activists or hacktivists but as a collective to fight against the mass pedophilia on the internet. We GhostSec ask every user who is watching this. those who are willing to join the hunt down of these sick freaks who deserve to be sentenced behind bars and worse.
